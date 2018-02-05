@@ -1,2 +1,1 @@
-# amit2020cs.github.io
-Voyage of Amit Singh
+# Owner's Blog And Portfolio
