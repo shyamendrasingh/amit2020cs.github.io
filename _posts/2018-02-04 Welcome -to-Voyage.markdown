@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Suspendisse pellentesque"
+title:  "GYM Exprience"
 date:   2018-03-11 14:37:44
 categories: update
 ---
@@ -8,7 +8,7 @@ categories: update
 Welcome to the Voyage Of Amit Singh
 
 
-   It is my experiment. I decide to go for gym and start(16-12-2017) first day is saturday, I came from last exam about 2 pm and very excited for gym. The time for gym is evening 6:30 and I ready at 5:45 with sport shoe and jeans(because I dont know the track pant is required in gym ), I am waiting a person for half an hour who used to go for gym regulary about last 3-4 years. Listening indian song(mere sapno ki rani kab aayogi tum ) in the car i reached at gym door. Where I get the large banner of God(Hanuman) I feel cool and piece after this image.I met the gym trainer who speak kya karoge , I repied weight gain karna hai. After this 
+   It is my experiment. I decide to go for gym and start(16-12-2017) first day is saturday, I came from last exam about 2 pm and very excited for gym. The time for gym is evening 6:30 and I ready at 5:45 with sport shoe and track pant, I am waiting a person for half an hour who used to go for gym regulary about last 3-4 years. Listening indian song(mere sapno ki rani kab aayogi tum ) in the car i reached at gym door. Where I get the large banner of God(Hanuman) I feel cool and piece after this image.I met the gym trainer who speak kya karoge , I replied weight gain karna hai. After this 
 (1)I run  bicycle for 5 min 
 (2) chest exercise kewal rod without any wieght 15times then 2.5kg(12) and 5kg(10).
 (3) chest with slant sleep and same as exercise 2 for some gap of time 
@@ -28,7 +28,7 @@ Welcome to the Voyage Of Amit Singh
 (5) 0.5kg of milk 
 (6) 1 kg gram 
 (7)1 kg soyabeen seed 
-(8) track-pant. 
+ 
 
 
   I saw my hand each time and imagine the body when I complete my gym.After sunday pain monday evening ,I go and tell to gym trainer that my hand is not straight then he bent my finger and arm thereafter my hand feel some relaxe. I repeat the same exercise and weight my body(57.5kg).Repeat the same exercise for tuesday to saturday with some pain in hand. 
