@@ -19,8 +19,7 @@ Welcome to the Voyage Of Amit Singh
 (8) triceps  weight 5kg of dumbble.
 (9) again an exercise for the triceps.
 (10) For legs I do sit up and down.
-
-    Next day is sunday and I sleep with some pain but not more and I was very happy. In the morning my both arm is swallen and I cannot take glass of water easily. Now whole day is painful for me and no one can help. I decide that no pain no gain so I went to market 
+   Next day is sunday and I sleep with some pain but not more and I was very happy. In the morning my both arm is swallen and I cannot take glass of water easily. Now whole day is painful for me and no one can help. I decide that no pain no gain so I went to market 
 (1) 1 dozen banana 
 (2)1 kg apple
 (3)0.5 kg of panner 
@@ -28,10 +27,7 @@ Welcome to the Voyage Of Amit Singh
 (5) 0.5kg of milk 
 (6) 1 kg gram 
 (7)1 kg soyabeen seed 
- 
-
-
-  I saw my hand each time and imagine the body when I complete my gym.After sunday pain monday evening ,I go and tell to gym trainer that my hand is not straight then he bent my finger and arm thereafter my hand feel some relaxe. I repeat the same exercise and weight my body(57.5kg).Repeat the same exercise for tuesday to saturday with some pain in hand. 
+   I saw my hand each time and imagine the body when I complete my gym.After sunday pain monday evening ,I go and tell to gym trainer that my hand is not straight then he bent my finger and arm thereafter my hand feel some relaxe. I repeat the same exercise and weight my body(57.5kg).Repeat the same exercise for tuesday to saturday with some pain in hand. 
 
    
         
