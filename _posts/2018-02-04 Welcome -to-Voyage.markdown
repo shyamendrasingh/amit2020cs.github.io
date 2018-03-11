@@ -1,6 +1,7 @@
 ---
 layout: post
 title:  "GYM Exprience"
+img: bg_contact.jpg
 date:   2018-03-11 14:37:44
 categories: update
 ---
